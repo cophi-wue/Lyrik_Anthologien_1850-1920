@@ -1,1 +1,1 @@
-# Lyrik_Anthologien_1850-1920
+# Lyrik Anthologien 1850-1920
